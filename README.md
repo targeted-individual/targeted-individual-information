@@ -20,7 +20,36 @@ The attack changes the more you learn. They pretend to leave but come back.
 
 The enemy will do everything in its power to keep you where you are, mentally and in belief and feelings.
 
+# Jesus
+
+```
+
+23 The Lord is my shepherd; I shall not want.
+
+2 He maketh me to lie down in green pastures: he leadeth me beside the still waters.
+
+3 He restoreth my soul: he leadeth me in the paths of righteousness for his name's sake.
+
+4 Yea, though I walk through the valley of the shadow of death, I will fear no evil: for thou art with me; thy rod and thy staff they comfort me.
+
+5 Thou preparest a table before me in the presence of mine enemies: thou anointest my head with oil; my cup runneth over.
+
+6 Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.
+```
+
+The enemy attacks in four approaches:
+
+ * the enemy tries to cause you to think feel believe something doesn't work
+ * the enemy tries to cause you to think feel believe you're thinking something you are not
+ * the enemy tries to cause you to think feel believe you're feeling awful
+ * the enemy tries to cause you to
 
 
+The enemy uses illusion of what is going on to deceive people. You are in the world but not of the world. You can rely on scripture to defend yourself from the enemy's attacks.
 
+The illusion is not true. Jesus is true and truth. You have the truth. The illusion is false. The spirits gather but Jesus has authority over all of them. They cannot do what Jesus does not allow. The enemy is defeated on the cross. The enemy has no power. The enemy uses illusion to deceive.
+
+You don't believe deceptions. You have Jesus.
+
+Reject what is not true, what is not Jesus. Jesus is the way truth and life.
 
