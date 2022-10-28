@@ -42,7 +42,7 @@ The enemy attacks in four approaches:
  * the enemy tries to cause you to think feel believe something doesn't work
  * the enemy tries to cause you to think feel believe you're thinking something you are not
  * the enemy tries to cause you to think feel believe you're feeling awful
- * the enemy tries to cause you to
+ * the enemy tries to cause you to fear
 
 
 The enemy uses illusion of what is going on to deceive people. You are in the world but not of the world. You can rely on scripture to defend yourself from the enemy's attacks.
